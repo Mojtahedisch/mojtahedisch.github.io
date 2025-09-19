@@ -1,1 +1,0 @@
-# Mojtahedi High School Website.
